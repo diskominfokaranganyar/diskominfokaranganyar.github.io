@@ -1,1 +1,1 @@
-# kabupaten karanganyar
+# diskominfo kabupaten karanganyar
